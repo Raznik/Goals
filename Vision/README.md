@@ -1,6 +1,6 @@
 # Raznik International Trading Company (LLC) INDIA
 
-## Vision
+## " The Vision Statement "
 ### (a.k.a. Ultimate Goal)
 
 We, at Raznik.Co, aspire to tranform our firm into the following industry roles as our instition grows, and evolves.
