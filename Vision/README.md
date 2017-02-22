@@ -3,9 +3,15 @@
 ## Vision
 ### (a.k.a. Ultimate Goal)
 
-STAGE 1: Foundation
-STAGE 2: Traading
-STAGE 3: Exports
-STAGE 4: Logistics
-STAGE 5: Manufacturing
+We, at Raznik.Co, aspire to tranform our firm into the following industry roles as our instition grows, and evolves.
+
+## STAGE 1: Foundation
+
+## STAGE 2: Traading
+
+## STAGE 3: Exports
+
+## STAGE 4: Logistics
+
+## STAGE 5: Manufacturing
 
