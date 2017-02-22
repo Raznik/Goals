@@ -7,7 +7,7 @@ We, at Raznik.Co, aspire to tranform our firm into the following industry roles 
 
 ## STAGE 1: Foundation
 
-## STAGE 2: Traading
+## STAGE 2: Trading
 
 ## STAGE 3: Exports
 
